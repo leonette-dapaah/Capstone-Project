@@ -1,1 +1,1 @@
-Don't forget to push rthe stuff
+Don't forget to push the stuff
